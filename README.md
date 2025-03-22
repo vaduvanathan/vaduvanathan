@@ -1,4 +1,4 @@
-## 🤖 Hello, I'm Vaduvanthan ⚡  
+## 🤖 Hello, I'm Vaduvanathan ⚡  
 
 👨‍💻 Final-year Computer Science & Engineering student, shaping the future of automation and AI  
 🤖 Robotics and AI enthusiast, building intelligent systems that (hopefully) don’t take over  
